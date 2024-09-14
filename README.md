@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me Discord: 24k_onlyy
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: IM GAY 'joking'
+- ⚡ Fun fact: My Hosting A Discord Bots 24/7.
 
 <!---
 Rhonod/Rhonod is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
